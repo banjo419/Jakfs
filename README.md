@@ -1,2 +1,0 @@
-# Jakfs
-Sjsu
